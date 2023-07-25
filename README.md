@@ -8,4 +8,5 @@
 6. FREE HOSTING PROVIDERS IN 2023
 7. Video editing & Animation Courses
 8. Freelancing courses
-9. Sotwares
+9. Softwares
+10. Android premium apps
