@@ -1,3 +1,3 @@
-# IT-Guide
+# IT Kit
 
-1. Useful tools for Digital marketing
+1. Useful tools for Digital Marketing
