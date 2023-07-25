@@ -4,3 +4,4 @@
 2. CV RESUME TEMPLATES PACK
 3. Videoscribe-activated software
 4. Pack for Video Editors
+5. Digital Marketing Paid Courses
